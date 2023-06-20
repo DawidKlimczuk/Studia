@@ -1,1 +1,1 @@
-Dawid Klimczuk nr.albumu 21444 Grupa C2
+Dawid Klimczuk nr. albumu 21444 Grupa C2
